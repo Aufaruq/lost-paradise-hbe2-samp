@@ -1,4 +1,4 @@
-Credit : Lost Paradise, Create TD & SCRIP : Aufa, ampun bang angga aku replika lagi
+Credit : Lost Paradise, Create TD & SCRIP : Aufa, ampun bang angga aku replika lagi sampe full scrip ( emote epep nangis )
 
 NTD PREV
 ![ntd](ntd.png)
